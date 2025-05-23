@@ -1,0 +1,2 @@
+# seafoodudang
+tugas pak alfi 
